@@ -1,2 +1,2 @@
 # Universe
-What a small universe
+Fictional space universe, pirates, government and lore galore
